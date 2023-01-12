@@ -8,3 +8,6 @@ Values: Honesty & openess
 Favourite animal: Gopher
 Fun fact: Otters hold hands when they sleep so they don't drift apart from each other
 Hobby: Drawing weird characters
+
+
+
